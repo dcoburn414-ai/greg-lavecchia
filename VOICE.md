@@ -46,3 +46,11 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 28. "We have some of our best ideas when we just get out of the office for a couple days." — Modern Creator
 29. "hunger, passion is, like, always the number one thing that we're looking for. I think a lot of skills can be taught, but, like, those things cannot be taught." — 505 Podcast
 30. "I don't even think about more than a year from today. I never have. I'm, like… really a month-to-month guy at best." — 505 Podcast
+
+31. "The most powerful man is the man who has power over himself." — Only Happy News talk write-up — https://onlyhappynews.com/happy-money/blooms-ceo-greg-lav-graduated-with-a-2-3-gpa-and-built-a-brand-into-60000-retail-doors-anyway/ (2026-09-16)
+32. "Greg, you're Bloom. Enter the room as yourself. But enter it with conviction, because energy is contagious." — same (advice he followed into Target pitch)
+33. "be the quietest man in the room." — same
+34. "That pressure truly did create diamonds." — same
+35. "Money without freedom is just paper." — same
+36. "That's the only reason the business was able to compound, because the next time I had more inventory, the launch was even bigger." — Only Happy News — https://onlyhappynews.com/happy-money/greg-lav-built-a-600-million-company-by-refusing-to-treat-goals-as-finish-lines/ (2026-08-20)
+37. "If you make three dramatic changes about who you are as a person twice a year for the next decade, in three years you'd be unrecognizable." — same
