@@ -54,3 +54,6 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 35. "Money without freedom is just paper." — same
 36. "That's the only reason the business was able to compound, because the next time I had more inventory, the launch was even bigger." — Only Happy News — https://onlyhappynews.com/happy-money/greg-lav-built-a-600-million-company-by-refusing-to-treat-goals-as-finish-lines/ (2026-08-20)
 37. "If you make three dramatic changes about who you are as a person twice a year for the next decade, in three years you'd be unrecognizable." — same
+
+38. "I don't care about making 30% profit on $50,000. I care about making 30% profit on $100 million or on today $500 million." — Only Happy News — https://onlyhappynews.com/happy-money/bloom-hit-1-36-million-in-one-day-then-greg-lav-put-every-dollar-back-in/ (2026-09-17)
+39. "Every big decision that I made that ended up becoming something fruitful started with a lot of fear, a lot of conviction, but a lot of fear and very little data to back it up, but a willingness to move anyway." — same
