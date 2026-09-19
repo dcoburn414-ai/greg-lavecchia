@@ -58,3 +58,10 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Treat big days as fuel: after first ~$1M day, put ~50% down on 2× inventory instead of lifestyle upgrade — only reason the business could compound (next launch bigger). Bad days now still ~$1M.
 - Identity change system: New Year’s + birthday (Mar 27) write **five third-person changes** (who Greg is), pin on phone; separate lists for professional / father / husband / son; 3 dramatic changes × 2×/year → unrecognizable in ~3 years.
 - CEO credibility: hard cap at celebrations (e.g. three cocktails max) — one sloppy night can erase 29 days of earned trust.
+
+## Scale-first / early-stage capital (OHN 2026-09-17)
+- Early stage: **scale the loved product** before optimizing supplier renegotiations, P&Ls, and tax structures — he skipped supplier renegotiation for ~3 years. Prefer 30% on a huge base over perfect margins on a tiny one.
+- Cultural/visual bets can beat spreadsheet consensus (purple energy can vs "must be white" consultants); office taste tests beat paid consumer research for crisp-apple SKU.
+- Kill a late-stage product if market evidence says it will fail at scale (protein soda walked away after watching funded peers flop) — one bad scaled SKU costs more than the near-term revenue left on the table.
+- **Business eats first**: delay lifestyle spend (shared car until ~$100M run rate / McLaren after) — monk mode for years, then take while still feeding the machine.
+- Big fruitful decisions start with **fear + conviction + little data** and a willingness to move; certainty arrives after action.
