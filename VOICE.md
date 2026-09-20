@@ -57,3 +57,9 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 
 38. "I don't care about making 30% profit on $50,000. I care about making 30% profit on $100 million or on today $500 million." — Only Happy News — https://onlyhappynews.com/happy-money/bloom-hit-1-36-million-in-one-day-then-greg-lav-put-every-dollar-back-in/ (2026-09-17)
 39. "Every big decision that I made that ended up becoming something fruitful started with a lot of fear, a lot of conviction, but a lot of fear and very little data to back it up, but a willingness to move anyway." — same
+
+40. "When I say moonshot, I'm not saying stop everything and go after some billion dollar opportunity. I'm saying go after right now what is your moonshot." — Only Happy News (6 rules) — https://onlyhappynews.com/happy-money/bloom-nutritions-greg-lav-built-a-1b-brand-by-breaking-6-rules-he-learned-the-hard-way-in-his-20s/ (2026-09-15)
+41. On product graveyard: Bloom launched ~250 products; five drive ~85% of revenue — more than 98% of launches failed; keep launching. — same
+42. After a loss the scoreboard "resets to zero the next morning, not to negative, not to five, to zero." — same
+43. Networking early is mostly wasted if you have nothing built; meaningful inbound started around ~$150M/year. — same
+44. Most people don't lose their future from one bad decision — they lose it from taking too long to get back into motion after one. — same
