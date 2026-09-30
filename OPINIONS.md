@@ -74,3 +74,17 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Youth advantage: surround with 21–23yo operators who touch culture/ecom/retail in real time; first five years team mostly under 30.
 - Early unscalable work (Bluetooth keyboard customer DMs, coaching $9.99 buyers through 100-lb losses) builds credibility — optimize later.
 - Momentum close: people lose futures less from one bad decision than from **slow restart** after one.
+
+
+## Asset-light scale / stand inside it (OHN factory 2026-09-29)
+- Speed via **not owning** manufacturers, warehouses, trucks, or forklifts — third-party + Dr Pepper distribution is the growth lever, not vertical integration theater.
+- Design physical SKUs for creator video (logo high on the can so hands don't cover the brand).
+- Competitive validity updates matter (Walmart energy rank vs Celsius; Amazon/TikTok Shop placement) but the emotional fuel is going to the plant and standing inside what you built — "winning is the limitless energy pill."
+- Chase goals big enough to change a family tree; verify progress by visiting the thing, not slide decks alone.
+
+## Plan over mood / anonymity armor (OHN Aspen 2026-09-25)
+- **Stick to the plan, not your mood** — emotional decisions (healing old wounds, ego-matching a rival's Black Friday discount) hurt long-term brand health.
+- Opinion filter: if they haven't done the *specific* thing you're attempting, their input isn't relevant data — even well-meaning parents, professors, friends.
+- Early anonymity is armor: unknowns can take five losses unnoticed; at scale a large write-off makes news — so enter swinging while you have nothing to lose.
+- Prefer the **experience from every decision** over loving winning or hating losing; losses (retail kicks, eight-figure debt, near-layoffs) build the operator for the next larger fire.
+- Fires never stop; the goal is to love the heat. Regret of not trying costs more than expensive mistakes (e.g. $10M overproduced root beer → next SKU rebound).

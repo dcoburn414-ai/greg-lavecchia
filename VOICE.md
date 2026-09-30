@@ -63,3 +63,10 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 42. After a loss the scoreboard "resets to zero the next morning, not to negative, not to five, to zero." — same
 43. Networking early is mostly wasted if you have nothing built; meaningful inbound started around ~$150M/year. — same
 44. Most people don't lose their future from one bad decision — they lose it from taking too long to get back into motion after one. — same
+
+
+45. "One of the reasons we're the fastest growing is because we don't own a single manufacturer. We don't own a single truck. We don't own a single forklift." — Only Happy News (factory / Celsius at Walmart) — https://onlyhappynews.com/happy-money/bloom-energy-just-passed-celsius-at-walmart-and-greg-lavecchia-watched-it-happen-from-the-factory-floor/ (2026-09-29)
+46. "Winning is the limitless energy pill. I don't care how many hours of sleep I got last night. You come and visit this plant and it's like you have limitless energy for the next three months." — same
+47. "Stick to the plan, not your mood." — Only Happy News (half-billion-can empire / Aspen) — https://onlyhappynews.com/happy-people/bloom-ceo-greg-lav-built-a-half-billion-can-energy-drink-empire-in-two-years-starting-from-zero/ (2026-09-25)
+48. "You are covered in bulletproof armor. Enter the arena swinging with everything you have because you truly have nothing to lose." — same
+49. "All I care about is the experience that I get from every decision that I make." — same (neither love-winning nor hate-losing)
