@@ -70,3 +70,18 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 47. "Stick to the plan, not your mood." — Only Happy News (half-billion-can empire / Aspen) — https://onlyhappynews.com/happy-people/bloom-ceo-greg-lav-built-a-half-billion-can-energy-drink-empire-in-two-years-starting-from-zero/ (2026-09-25)
 48. "You are covered in bulletproof armor. Enter the arena swinging with everything you have because you truly have nothing to lose." — same
 49. "All I care about is the experience that I get from every decision that I make." — same (neither love-winning nor hate-losing)
+
+
+## Exact quotes — Built For More Podcast (2026-03-17; folded 2026-10-02)
+50. "there's no prescription for this. It's learned in the arena." — Built For More #196 — https://www.youtube.com/watch?v=Cmgbv5p75bc
+51. "if you start small and you continue to level up every 6 months and you recreate yourself every 6 months, you will be unrecognizable in 18 months." — same
+52. "If your goal is to create a mass accomplishment, I think that diversifying is the best way to slow yourself down." — same
+53. "everyone who reports to me is better than me at the thing that they do. So, therefore, I am the worst person on the leadership team at one single thing." — same
+54. "you need to stay ready, otherwise you need to get ready and getting ready takes a long time." — same (missed Walmart 3,000 end caps for lack of cans)
+55. "the greatest way to compete is to not die." / "your greatest competitive edge is just being unkillable." — same
+56. "the end goal is being Greg all the time" — same (integrated life vs role-switching CEO/husband/dad)
+
+## Exact quotes — OHN manor / lessons at 31 (2026-07-22; folded 2026-10-02)
+57. "I promise you, if I was able to figure it out, you are capable of doing it. I am no better than you at literally anything." — Only Happy News — https://onlyhappynews.com/happy-money/bloom-ceo-greg-lavs-lessons-from-building-a-half-billion-dollar-company-before-31/
+58. "Some of the biggest jumps in my life have come from removing things, not adding things." — same
+59. On self-talk: joking about low IQ/ADHD as a cushion trained the voice to flinch — reverse by speaking as someone capable who goes after the challenge; bravery is going anyway, not absence of fear. — same
