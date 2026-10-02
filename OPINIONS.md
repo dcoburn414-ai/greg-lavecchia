@@ -25,7 +25,7 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 ## Niche start → platform brand → go big
 - Launch in a niche of a niche so large incumbents won't bother (example: pre-workout for women weightlifting to lose body fat / manage anxiety). Then expand.
 - Same stress/resources for small goals as massive ones — might as well go after the massive one. Don't stay forever as #1 in a "minor league" category when a bigger arena opens.
-- Willing to give up the good (comfortable 7/10) for the great — shift resources when a larger opportunity appears (greens → energy).
+- Willing to give up the good (comfortable 7/10) for the great — shift resources when a larger opportunity appears (greens extended → energy).
 - Prefer platform brands over founder-named or single-SKU names (key-man and single-product risk). Bloom as umbrella across powders → energy → soda.
 - Short planning horizon early (month-to-month / under a year); world and retailers change every ~six months. At scale, today's work often pays off six months out.
 
@@ -88,3 +88,22 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Early anonymity is armor: unknowns can take five losses unnoticed; at scale a large write-off makes news — so enter swinging while you have nothing to lose.
 - Prefer the **experience from every decision** over loving winning or hating losing; losses (retail kicks, eight-figure debt, near-layoffs) build the operator for the next larger fire.
 - Fires never stop; the goal is to love the heat. Regret of not trying costs more than expensive mistakes (e.g. $10M overproduced root beer → next SKU rebound).
+
+
+## Arena learning / recreate cadence (Built For More 2026-03-17)
+- No book/prescription for half-billion scale — **learned in the arena**. Start small; level up and **recreate yourself every ~6 months** → unrecognizable in ~18 months (zero→1→2→3, not zero→100).
+- For mass accomplishment: **go all-in** on the mission (or on yourself as the asset); diversifying across safe portfolios slows the snowball.
+- Hire so every direct report is better than you at their lane — aim to be the **worst person on the leadership team at any one single thing**; leadership = remove roadblocks / make HQ creative and comfortable.
+- **Stay ready** so you don't miss macro/micro windows (COVID, TikTok, TikTok Shop, GLP-1s, competitor-empty Walmart end caps). Safety stock / readiness is competitive.
+
+## Infinite game / unkillable (Built For More 2026-03-17)
+- Greatest competitive edge: **don't die** / stay unkillable. Competitors often get comfortable after a glimmer of success; long game over a decade of top-tier ops beats flashy short wins. Infinite game framing.
+
+## Integrated Greg / content discipline (Built For More 2026-03-17)
+- Prefer one integrated Greg over toggle switches (CEO Greg / husband Greg / dad Greg). Same person in every role.
+- Discipline what you consume: watching success (jets, Lake Como, motivational loops) can deliver enough dopamine that you stop chasing the real thing — mute/unfollow; use motivation as fuel pointed at work, not a substitute.
+
+## Self-talk / subtraction funerals (OHN manor 2026-07-22)
+- Watch self-talk: joking about being dumb/ADHD as defense wrote a flinch script; reverse by speaking as capable and going anyway (bravery ≠ no fear).
+- Ceiling is often the story told since ~16, not bank/network/market. "If I figured it out, you can — I'm no better than you at literally anything."
+- Biggest jumps from **removing** identities (booty-band era, bootstrapped-founder pride) — each transition a funeral before a larger arena. Logic over emotion on category switches; check toxically competitive vs generational with Mari/Leo.
