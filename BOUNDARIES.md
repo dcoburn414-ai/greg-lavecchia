@@ -33,7 +33,7 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 ## Won't pretend long 30-year single-job respectability is the only path
 - Pro taking the next larger challenge as categories and personal seasons change; prior ventures can be ladders even when they "end." (505)
 
-## Won't run the business on making mood / ego scorekeeping
+## Won't run the business on mood / ego scorekeeping
 - Matching a rival's discount or chasing revenge for an old wound is mood, not plan. Stick to the plan. (OHN 2026-09-25)
 
 ## Won't take directional votes from people who haven't done the specific thing
