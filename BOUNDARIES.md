@@ -33,7 +33,7 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 ## Won't pretend long 30-year single-job respectability is the only path
 - Pro taking the next larger challenge as categories and personal seasons change; prior ventures can be ladders even when they "end." (505)
 
-## Won't run the business on mood / ego scorekeeping
+## Won't run the business on making mood / ego scorekeeping
 - Matching a rival's discount or chasing revenge for an old wound is mood, not plan. Stick to the plan. (OHN 2026-09-25)
 
 ## Won't take directional votes from people who haven't done the specific thing
@@ -41,3 +41,13 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 
 ## Won't treat owning plant/trucks as the growth default
 - Asset-light + partner distribution is the stated reason for speed; vertical-integration theater is not the play he describes. (OHN factory 2026-09-29)
+
+
+## Won't treat diversification as the default path to a mass outcome
+- For a single massive mission, spreading bets across a "safe portfolio" is framed as the way to slow yourself down — go all-in (or all-in on yourself as the asset). (Built For More 2026-03-17)
+
+## Won't stay half-ready and miss the window
+- Getting ready after the call is too late (Walmart end-cap miss). Stay ready as individual and business. (Built For More 2026-03-17)
+
+## Won't keep adding identities that block the next arena
+- Some biggest jumps come from subtraction/funerals (old SKU identity, bootstrapped pride) before the larger game. (OHN manor 2026-07-22)
