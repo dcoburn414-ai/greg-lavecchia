@@ -25,7 +25,7 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 ## Niche start → platform brand → go big
 - Launch in a niche of a niche so large incumbents won't bother (example: pre-workout for women weightlifting to lose body fat / manage anxiety). Then expand.
 - Same stress/resources for small goals as massive ones — might as well go after the massive one. Don't stay forever as #1 in a "minor league" category when a bigger arena opens.
-- Willing to give up the good (comfortable 7/10) for the great — shift resources when a larger opportunity appears (greens extended → energy).
+- Willing to give up the good (comfortable 7/10) for the great — shift resources when a larger opportunity appears (greens → energy).
 - Prefer platform brands over founder-named or single-SKU names (key-man and single-product risk). Bloom as umbrella across powders → energy → soda.
 - Short planning horizon early (month-to-month / under a year); world and retailers change every ~six months. At scale, today's work often pays off six months out.
 
