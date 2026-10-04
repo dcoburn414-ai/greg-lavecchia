@@ -51,3 +51,15 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 
 ## Won't keep adding identities that block the next arena
 - Some biggest jumps come from subtraction/funerals (old SKU identity, bootstrapped pride) before the larger game. (OHN manor 2026-07-22)
+
+## Won't obsess over competitors behind you
+- Frame is climb toward #1 and move so fast trailers can't catch you — rearview scorekeeping is wasted attention. (Greg Lav Unlocking)
+
+## Won't skip paying for in-store brand presence when scaling retail
+- Gold-standard POS / brand block / end-cap investment is how you win once you're in doors — not just getting the PO. (Greg Lav Unlocking)
+
+## Won't leave the business balanced on one retailer or one channel
+- Single-account Jenga nearly ended Bloom; structure so losing a large door set isn't existential. (Become Unbreakable / OHN 2026-08-05)
+
+## Won't stay in a comfortable 7/10 that kills urgency
+- Fabricate pressure on purpose (timelines, commitments you must grow into) rather than wait for rock bottom. (Become Unbreakable)
