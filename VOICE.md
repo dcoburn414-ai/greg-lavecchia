@@ -101,3 +101,7 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 69. "Do you know how embarrassing the first four years of this entire entrepreneurial journey was? We literally didn't even know how to make a website." — OHN yacht Greece — https://onlyhappynews.com/happy-money/greg-lav-chartered-a-160-foot-yacht-in-greece-after-a-decade-nobody-believed-in/ (2026-08-05)
 70. "Why because I am here can I not talk about business? Why do I need to feel guilty about that?" — same
 71. "If I was sitting in Santorini right now at 31 years old and had all of this already built, I would be depressed." — same (earned path required)
+
+## Exact quotes — 10 Generational Lies (OHN write-up 2026-10-04)
+72. "I feel like 80% of the stuff I was taught in high school and middle school and elementary school is totally obsolete to the arena that we are now playing in." — Only Happy News — https://onlyhappynews.com/happy-money/bloom-co-founder-greg-lavecchia-calls-out-10-generational-lies-holding-young-entrepreneurs-back/
+73. "Bet on yourself," / "There is nothing more important than betting on yourself." — same (vs sports betting / day-trading course pitches aimed at people who are down)
