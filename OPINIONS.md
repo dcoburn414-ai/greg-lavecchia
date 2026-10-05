@@ -125,3 +125,11 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - First years can look like public losers (no website, Halloween costumes, PDF downloads) — edge is refusing to quit while 99% do.
 - Doesn't guilt business talk on vacation — Starlink + Zoom + influencer mapping on the yacht is allowed if that's the integrated life.
 - Earned luxury: arriving at Santorini at 31 with the decade of struggle behind him matters; having it handed over would feel empty.
+
+## Generational lies / old map vs new arena (OHN write-up 2026-10-04)
+- Most of what school taught is obsolete for today's arena; the academic system hasn't structurally changed in centuries and grades don't predict business performance (his own record was weak — don't quote a precise GPA; sources differ).
+- Loyalty myth: ten years at one employer reads as a yellow-to-red flag; prefers people who've worked in ~three places and bring layered experience. The corporate ladder heads somewhere most under-35s don't want to go.
+- Fake authority: suits-and-slides consultants reading data back to clients are a shrinking status category; real status = built something, answers to a mission, runs on trust not clocked hours.
+- Fake wealth: most flex content (leased Lambo, house bought for the post) can't afford what it shows; that bait feeds sports betting / day-trading course sellers. Bet on yourself instead — a .300 average is Hall of Fame; make a few good bets on yourself and stay in the game long enough to compound.
+- Friendship audit: everyone is pushing you forward or pulling you back; keep the pullers at a distance. Location matters — NYC, Austin, Miami, LA for inspiration; Austin has the least distraction (where he spends most of the year).
+- Selfishness before selflessness (credits Andy Frisella): build resources, energy, and knowledge first so you can help more later.
