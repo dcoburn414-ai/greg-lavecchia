@@ -133,3 +133,41 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Fake wealth: most flex content (leased Lambo, house bought for the post) can't afford what it shows; that bait feeds sports betting / day-trading course sellers. Bet on yourself instead — a .300 average is Hall of Fame; make a few good bets on yourself and stay in the game long enough to compound.
 - Friendship audit: everyone is pushing you forward or pulling you back; keep the pullers at a distance. Location matters — NYC, Austin, Miami, LA for inspiration; Austin has the least distraction (where he spends most of the year).
 - Selfishness before selflessness (credits Andy Frisella): build resources, energy, and knowledge first so you can help more later.
+
+## Show up / stay in the game / passion vs data (Greg Lav YT "Before You Chase Success" 2026-06-26)
+- Winners show up on zero-motivation days; control sleep/diet so you stay ready, then just go through the motions — creativity can't be forced, but showing up every day raises the odds a good idea sparks.
+- Often the win is outlasting: competitors made a couple bucks, got comfortable, and dropped out. When someone quits, don't question it — one fewer in the race.
+- Self-belief without a track record comes from stacking small battles (monthly → weekly → daily) until they compound and you don't recognize the person in the mirror.
+- Health foundation is simple: 7+ hours of sleep in a cold dark room on a fixed schedule, high protein + quality fats/carbs, move every day (outside, sun) — "simplicity scales." Party sometimes, but get back on the bandwagon fast.
+- Never chased money — chased building something huge; money is the byproduct. Selling the company/leaving the pursuit is what makes founders depressed, not the money.
+- External validation can backfire (posting the yacht trip reignited combative chip-on-shoulder energy). Mental health has no finish line — keep the demons at bay, keep non-yes-men around.
+- Comparison is inspiration or jealousy; if it drives emotional decisions to beat one person, mute/unfollow immediately.
+- Fear is early-stage fuel; after financial freedom the job becomes chess, not paranoia.
+- Passion applied to a corner of the market beats suits and boardrooms that only follow data (men's fitness passion → women's white space → Bloom).
+- Wealth is patience: the "overnight success" took 10–12 years. Find a partner early if you can; Mari was on (and responsible for) the journey.
+- Leave your hometown if the people around you mock you — Boulder 18-month monk mode is where Bloom launched. Control your narrative with a personal brand. Pass down wisdom and skills to his son, not just wealth.
+- Pick one playbook and run it; you can't run 100 at once.
+
+## Goals as levels / reputation / annual identity list (Greg Lav YT "You're Not Ready for the Life You Want" ~2026-09)
+- A goal isn't a finish line — it's a level you must learn to live at (six-pack you can't maintain; one sloppy night can undo 29 good leadership days). Retirement as finish line is an inherited lie.
+- Wanting more isn't ingratitude; not using today's opportunities is.
+- Build the operation around what makes you your best self — for him, in-person and in-office (Austin HQ + LA/NYC satellites), not remote; Zoom makes him worse.
+- Reinvest milestones: first $1M restock day went straight into a $1M down payment for twice the greens inventory, not a Rolex or car.
+- Twice a year (New Year's and his Mar 27 birthday) write 3–5 realistic third-person changes ("Greg is the type of person who…"), pinned in Notes; now split by professional/father/husband/son Greg.
+- Personal brand = accountability (followers DM when he skips the gym). Ritual routine + monk mode; circumstances aren't identity — scoreboard starts at zero every day.
+
+## Level up the game / anti-diversification / stay ready / moonshots (Greg Lav YT "How I Built a $1B Brand in My 20s" ~2026-03)
+- Treat ventures like unlocking a bigger map: PDFs → booty bands → women's pre-workout → greens (bootstrapped to $180M) → energy vs Monster/Red Bull. Near the top of a bell curve, move ~95% of time to the next game and leave ~5% to keep the old one afloat.
+- Mind share is your most important portfolio — go 100% on one thing; low-risk is low-reward; in your 20s starting back at zero is survivable.
+- Stay ready instead of planning 3–10 years out: COVID (protein + greens via Shopify/Amazon), early TikTok (in-house influencer agency), GLP-1 (clear protein), TikTok Shop. Saying a winner was "just lucky/early" is victim mentality — the real miss is not being ready.
+- Control luck: be in the rooms (trade shows where the Walmart buyers walk, hostel if broke), move cities for the business (five moves in five years), never be a shark in a pond.
+- Build in public — it attracts talent, partners, retailers, investors; nobody will steal your ideas (and couldn't execute them like you).
+- Connect the dots — early lessons (pre-workout flavors, small negotiations) recur at bigger scale. Moonshots only: a small venture costs the same stress and resources as a big one; his team won't chase anything that isn't potentially $100M.
+
+## Reputation as leverage / scoreboard at zero (Greg Lav YT "6 Decisions" 2026-05-01)
+- Failure can't make you cautious: of ~250 launched products, ~5 made ~85% of revenue; a retailer sending back 150,000 cases on Wednesday is Thursday's opportunity.
+- With no capital, reputation is the leverage — with customers, partners, banks, credit lines.
+- Early networking without utility is wasted; build something special and the network comes. Youth is an asset — get in shape and groomed to be taken seriously; surround yourself with 21–23-year-olds who know culture. Don't over-optimize early — do unscalable things.
+
+## TikTok Shop (Greg Lav YT "$1B Brand: How we became #1 on TikTok Shop" 2026-05-15)
+- TikTok Shop is a top scaling opportunity most brands run wrong; the affiliate community should feel like they "bought Bloom stock" and ride the wave. The channel's goal is building a multi-billion-dollar brand in public.
