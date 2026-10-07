@@ -10,6 +10,7 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 - Self-deprecating academic/ADHD honesty (2.4 GPA, "I can't read") paired with competitive validity obsession (Amazon #1, Target, Top energy)
 - Short planning language: month-to-month, six-month world changes, don't think past a year early on
 - Cadence: podcast monologues with "yeah / right / like" filler + crisp quotables for LinkedIn/IG ("restocked," "second mover," "don't recreate the wheel")
+- Solo YouTube lesson register: "Lesson number two…" / "Next question." structure, "fam" / "homie" / "dude", a Bloom story per point, then a blunt close ("That's on you, homie."; "I'm rooting for all of y'all.")
 
 ## Exact quotes — short / punchy (interview soundbites)
 1. "When I see a saturated space, I think that someone has already done so much education for me." — Entrepreneur / Jason Feifer — https://www.entrepreneur.com/business-news/his-new-product-sold-more-than-100-million-in-one-year-heres-his-strategy (~2026)
@@ -105,3 +106,29 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 ## Exact quotes — 10 Generational Lies (OHN write-up 2026-10-04)
 72. "I feel like 80% of the stuff I was taught in high school and middle school and elementary school is totally obsolete to the arena that we are now playing in." — Only Happy News — https://onlyhappynews.com/happy-money/bloom-co-founder-greg-lavecchia-calls-out-10-generational-lies-holding-young-entrepreneurs-back/
 73. "Bet on yourself," / "There is nothing more important than betting on yourself." — same (vs sports betting / day-trading course pitches aimed at people who are down)
+
+## Exact quotes — Greg Lav YouTube lesson videos (first-party solo; folded 2026-10-07)
+74. "Sometimes the best way to win the game is to stay in the game long enough where enough people drop out." — Greg Lav YT "Before You Chase Success, Watch This" (uploaded 2026-06-26; podcast feed 2026-10-06) — https://www.youtube.com/watch?v=XPYdYNIpZRk
+75. "So, those people who stop, don't question them. Say, 'Okay, good. Someone's out of the race.'" — same
+76. "Wealth isn't an income problem. It's a patience problem." — same
+77. "You don't kill the demons, you keep the demons at bay." — same
+78. "I'm following passion, attacking the market. That's how Bloom has won." — same
+79. "You can't run 100 playbooks at once. You need to choose one." — same
+80. "A goal is not something you achieve. A goal is a new level that you learn to live at." — Greg Lav YT "You're Not Ready for the Life You Want" (podcast feed 2026-10-01) — https://www.youtube.com/watch?v=qxkJO5JVLDg
+81. "you are actually an ungrateful prick if you do not take advantage of the opportunities that exist today." — same
+82. "If I'm even on a Zoom call, I am a worse version of myself." — same
+83. "You will be remembered more for your mistakes than you will for your wins." — same
+84. "I didn't buy a Rolex. I wanted to. I didn't buy a car." — same (first $1M day → $1M down payment on twice the greens)
+85. "You are a player. You are not a spectator, and the arena doors are wide open for you." — same
+86. "Once you beat a game, you should move on to a more challenging, higher risk, higher reward game next." — Greg Lav YT "How I Built a $1B Brand in My 20s" (~2026-03; podcast feed 2026-09-30) — https://www.youtube.com/watch?v=ut2X6SC84bA
+87. "I am so anti-diverse portfolio." — same
+88. "The only victim mentality that people should be saying is it, 'Fuck, I wasn't ready.' And that's on you, homie." — same
+89. "Never find yourself as being a shark in a pond." — same
+90. "This is a lonely game already, entrepreneurship. Why would you make it even lonelier?" — same (on building in public)
+91. "a small venture will take the same amount of time and the same amount of resources as a large venture." — same (moonshots only)
+92. "never let failure turn you into a cautious man." — Greg Lav YT "$1B Brand: 6 Decisions I made in my 20's" (2026-05-01) — https://www.youtube.com/watch?v=6a8wGgWx3EY
+93. "If you take an L on a Wednesday, I want you to get up on Thursday morning and your scoreboard starts at zero." — same
+94. "Leverage is reputation. It is not necessarily just money." — same
+95. "You don't need perfect timing. You don't need perfect confidence. You definitely don't need clarity. You need movement." — same
+96. "TikTok Shop is one of the biggest opportunities for scaling your brand right now, but so many are doing it incorrectly." — Greg Lav YT "$1B Brand: How we became #1 on TikTok Shop" (2026-05-15; podcast feed 2026-10-07; vlog narration) — https://www.youtube.com/watch?v=ORKBX1r5-zI
+97. "our whole goal with this channel is building a multi-billion dollar brand in public." — same (narration)
