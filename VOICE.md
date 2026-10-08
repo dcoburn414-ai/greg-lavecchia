@@ -132,3 +132,32 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 95. "You don't need perfect timing. You don't need perfect confidence. You definitely don't need clarity. You need movement." — same
 96. "TikTok Shop is one of the biggest opportunities for scaling your brand right now, but so many are doing it incorrectly." — Greg Lav YT "$1B Brand: How we became #1 on TikTok Shop" (2026-05-15; podcast feed 2026-10-07; vlog narration) — https://www.youtube.com/watch?v=ORKBX1r5-zI
 97. "our whole goal with this channel is building a multi-billion dollar brand in public." — same (narration)
+
+## Exact quotes — Greg Lav YouTube first-party bodies (folded 2026-10-08)
+98. "They just didn't realize that they were giving us a GPS route to a destination that no longer exists." — Greg Lav YT "10 Generational Lies That Are Keeping You Stuck" (~2026-10-03) — https://www.youtube.com/watch?v=6OSEqeWG2H4
+99. "When I see a resume with one job over the last 10 years, I genuinely see it as a yellow to red flag." — same
+100. "I know you want me to say sacrifice right now, but it is not sacrifice. You can invest your 20s into becoming the best version of yourself" — same
+101. "Your hometown isn't comfortable. It's just familiar." — same
+102. "you just need to get a 300 batting average. Three out of 10 bets need to make it work, and you're in the Hall of Fame." — same
+103. "living a life of pursuit is so much more fulfilling and so much more fun than living a boring life." — same
+104. "The only difference between a winner and a loser is the choice that they made. It is a choice." — same
+105. "But you know what costs more? The regret of not doing anything. That is the most expensive thing on this planet." — Greg Lav YT "If You're a Nobody But You Have Ambition, Watch This" (~2026-09) — https://www.youtube.com/watch?v=wrWl294c5VM
+106. "You can respect somebody without letting them have access to your trajectory of your moonshot." — same
+107. "a true winner loses more than they win, but the wins stack up brick by brick" — same
+108. "you are a firefighter. The problems don't stop." / "But I have learned to love the heat." — same
+109. "it is realistic that in one to two years that will be your average Tuesday." / "the finish line continues to move." — same
+110. "you just literally never need to start over from zero." — same
+111. "If the road feels lonely right now, it means that you are probably going down the right path." — same
+112. "It is ungrateful of the opportunity that you have been given by the universe to not come up with gigantic goals." — Greg Lav YT "$1B CEO: This was my Biggest Unlock" (~2026-08) — https://www.youtube.com/watch?v=Uil05AC7R8U
+113. "You need to separate who you are from who you are becoming." — same
+114. "I am not currently necessarily proud of who I am, but I am proud of the man that I am becoming." — same
+115. "Your back is up against the wall, the bridges are burned, there is no plan B." — same (on publicly calling out Monster)
+116. "Really, my only quantifiable goal is that I want to make sure we beat last month." — same
+117. "There were 350 goals before this Bloom energy drink is in front of you." — same
+118. "Being fat is hard. Having a six-pack is hard. Being broke is hard. Being rich is hard. Choose your hard." — Greg Lav YT "$1B CEO: 8 rules I wish I knew in my 20s" (~2026-09) — https://www.youtube.com/watch?v=V-iMQ2ktX7k
+119. "you don't have an ambition problem. You have an ambition strength. You have an input problem." — same
+120. "Nobody talks about learning from example." — same
+121. "Do not be the person that just talks about it." — same
+122. "No one created anything special in 6 months." — same
+123. "The only way through is through." — same
+124. "this society that we live in today, is a meritocracy. It rewards hard work." — same
