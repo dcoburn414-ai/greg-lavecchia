@@ -171,3 +171,34 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 
 ## TikTok Shop (Greg Lav YT "$1B Brand: How we became #1 on TikTok Shop" 2026-05-15)
 - TikTok Shop is a top scaling opportunity most brands run wrong; the affiliate community should feel like they "bought Bloom stock" and ride the wave. The channel's goal is building a multi-billion-dollar brand in public.
+
+## Invest your 20s / longevity / life of pursuit (Greg Lav YT "10 Generational Lies", first-party body ~2026-10-03)
+- The last generation handed over a GPS route to a destination that no longer exists — not lies on purpose, just an obsolete map.
+- You don't need to buy a house and start a family in your 20s; frame the decade as an **investment, not a sacrifice**, in becoming the best version of yourself. Longevity has stretched — the people he's around are still crushing it in their 60s–80s — so the payoff window is decades long.
+- Circumstances aren't identity: a privileged start buys little in today's arena (nothing Harvard taught covers TikTok Shop); in his experience kids raised with resources are usually soft, so a harder start is an edge. Everyone starts at zero.
+- Comfort is not the goal; a stressed life of pursuit in your 20s–30s is more fulfilling and more fun than a boring one. Don't take "slow down" advice from people living the life you don't want. In your 20s you're a player now, not a spectator.
+- Gambling for fun is fine; real money on prediction markets/sports bets isn't — bet on yourself, where three good bets out of ten is Hall of Fame.
+- Your hometown isn't comfortable, it's just familiar. Winner vs loser is a choice.
+
+## Ambition without guilt / never start over from zero (Greg Lav YT "If You're a Nobody But You Have Ambition", first-party body ~2026-09)
+- What fuels him is the 80-year-old looking back; regret of not doing anything is the most expensive thing there is.
+- Write the list of who you **don't** want to be (out of shape, broke, a bad husband/dad, the status-quo male) — the passion about that makes the "who I want to be" list easy. Pre-plan the week (workouts on Sunday) to remove mood-based decisions.
+- You can love and respect people without giving them access to your trajectory.
+- Don't love winning or hate losing — love building. True winners lose more than they win; the wins stack brick by brick and outweigh the L's (e.g. a ~$10M root-beer overproduction write-off, then the next launch outperformed).
+- Never let anyone make you guilty for ambition; they see who they could have become. Some people get left behind — that's part of it.
+- The finish line keeps moving: today's dream is your average Tuesday in a year or two. Each goal becomes a dot — cash, retailer and manufacturer relationships, a team that follows you — so you never start over from zero. A lonely road usually means the right road. A cautious boring life is a ship left in the harbor.
+
+## Goals: becoming, announcing, stepping stones (Greg Lav YT "$1B CEO: This was my Biggest Unlock", ~2026-08)
+- No guilt for wanting more — not setting gigantic goals is the ungrateful move.
+- Separate who you are from who you are becoming; be proud of the man you're becoming even when you're not proud of who you are today.
+- Goals are lifestyle changes, not finish lines (the six-pack has to be maintained; the $100M business has to be run).
+- **Announce goals publicly** for accountability — calling out Monster on Instagram felt cringe, then fired up him and the team: bridges burned, no plan B.
+- Use both a vision board (the end picture) and one quantifiable rule — beat last month. Climb with small stepping-stone goals ($1M → $1.2M → $1.4M); ~350 goals came before the energy drink, starting from a pre-workout white space "they won't even notice." Schemer first, savage later.
+
+## Learn by example / show don't tell / seeds lag (Greg Lav YT "$1B CEO: 8 rules", first-party body ~2026-09)
+- Choose your hard. You don't have an ambition problem — you have an input problem (focus and saying no). Total abstinence for 3–12 months is easier than moderation.
+- **Learn from example**, not by DMing founders: they're experts in their business, not yours. Buy the competitor's product, read their email flow, Facebook Ad Library, Amazon listings, TikTok affiliates. Copy what winners did at the beginning, not their current routine.
+- Do what you say; talking about goals is fake dopamine. Show results, rarely announce dreams (separately, he does publicly call out specific competitive goals like beating Monster for accountability). Real dopamine = freedom, family, a team you love working with.
+- Audit routines every ~6 months: e.g. 18 months of nightly weed in Boulder felt like recovery but was making him unproductive — quitting sent output up; once he had disposable income he outsourced cooking/cleaning.
+- Stop starting new things: decisions (good and bad) are seeds that show up 6–12+ months later; a vacation's effect shows up months later too. Give up the good for the great, but give things time.
+- The arena is a meritocracy; the only way through is through. Current tactic he's seeing win on TikTok Shop/Amazon: mom-and-pop authenticity (first-name customer-service emails) over legacy-corporate polish.
