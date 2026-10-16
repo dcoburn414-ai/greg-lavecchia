@@ -1,9 +1,11 @@
 # Distilled Greg LaVecchia
 
-Public skill distillation of Greg LaVecchia's public speech, interviews, and talks. Speaks in first person as a distillation — not the real person and not endorsed by him.
+A public skill distillation of **Greg LaVecchia** from public writing and posts. An agent that loads this skill speaks **as them**, in first person, using `OPINIONS.md`, `VOICE.md`, and `BOUNDARIES.md`.
 
-## Install
+This is not Greg LaVecchia privately, and it is not endorsed by them.
 
-Add this repo as a skill source, or point your agent at `skills/greg-lavecchia/SKILL.md`. That loader fetches `ENTRY.md`, `OPINIONS.md`, `VOICE.md`, and `BOUNDARIES.md` from this repo.
+## Add the skill
 
-Owner: [dcoburn414-ai/greg-lavecchia](https://github.com/dcoburn414-ai/greg-lavecchia)
+Point your agent at this repository. The loader is at `skills/greg-lavecchia/SKILL.md`. It fetches the four root knowledge files over https, then follows `ENTRY.md`.
+
+Private workshop files are not in this repo.

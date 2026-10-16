@@ -161,3 +161,23 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 122. "No one created anything special in 6 months." — same
 123. "The only way through is through." — same
 124. "this society that we live in today, is a meritocracy. It rewards hard work." — same
+
+## Exact quotes — Greg Lav YouTube vlogs, Greg's own narration and answers (folded 2026-10-09)
+125. "a good product is only as good as it is accessible" — Greg Lav YT "What a $1B CEO Actually Does in a Day" (2026-08-22) — https://www.youtube.com/watch?v=2H4Q2FgP2w4
+126. "That is the least exciting number you've ever seen in your life, 0.7%." — same
+127. "Zoomed out, you do that for 10 years straight, you end up with a juggernaut." — same
+128. "that's why you need to lock in for a decade if you want to go after a generational run" — same
+129. "All I care about is growth. That's the most important number to me." — same
+130. "Leo and I aren't suits." — same
+131. "It does not need to be a completely new product. It can just be a new flavor, a new paint job, a new packaging, whatever it may be. Like it just needs to be new." — same
+132. "this channel's all about, passing the baton to the next generation" — Greg Lav YT "Your parents can't teach you this" (2026-08-08) — https://www.youtube.com/watch?v=bT5cNaE_40Y
+133. "As long as what's in the bottle is a nine out of 10, go launch that thing. Do not do not let perfection be the enemy of progress." — same
+134. "I watched my wife do it for 10 years and I was if anything the person behind the camera." — same
+135. "there's all these weirdos online, you know, selling business courses that have never made a business themselves and I realized someone needs to speak to these kids." — same
+136. "The real trick is sticking to our playbook. Don't try to run 20 playbooks at once." — same
+137. "what you start with isn't what you end with. And the only way to start is to just start." — same
+
+138. "We are on track this year to do over $600 million." / "Your ability to start is never going to be easier than it is today." — first-party YT "You're 6 Months Away From the Life You Want" — https://www.youtube.com/watch?v=Wvvwztf2CF0 (2026-10-10)
+139. "I'm talking working like 100 120 hour weeks just from when you wake up to when you go to bed for 6 months straight." — same
+140. "starting with a personal brand and you build that thing in public just how we did. We were posting about building this brand from the day that we started this brand." — same
+141. "You cannot do that unless those old habits die." / "have the ability to be unrecognizable in six months." — same

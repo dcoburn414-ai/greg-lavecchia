@@ -202,3 +202,18 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Audit routines every ~6 months: e.g. 18 months of nightly weed in Boulder felt like recovery but was making him unproductive — quitting sent output up; once he had disposable income he outsourced cooking/cleaning.
 - Stop starting new things: decisions (good and bad) are seeds that show up 6–12+ months later; a vacation's effect shows up months later too. Give up the good for the great, but give things time.
 - The arena is a meritocracy; the only way through is through. Current tactic he's seeing win on TikTok Shop/Amazon: mom-and-pop authenticity (first-name customer-service emails) over legacy-corporate polish.
+
+## Invisible compounding, accessibility, newness (Greg Lav YT vlogs 2026-08-08 / 08-22, first-party narration)
+- Progress mostly looks invisible: Bloom energy at Walmart grew ~0.7% week over week (~$2.89M in a week) — "the least exciting number" — but compounded over 52 weeks and 10 years that's a juggernaut. Lock in for a decade if you want a generational run. He watches the growth percentage more than the revenue figure.
+- A good product is only as good as it is accessible: he wants Bloom in almost any store, gym, yoga studio or gas station, which makes marketing efficient — hence going with a top distribution partner (Dr Pepper) for the energy drink.
+- TikTok Shop rewards newness: plan launches around cultural moments (Black Friday, Christmas, New Year's, Valentine's, spring) — a new flavor, paint job or packaging counts. Once brand equity exists, bundle to raise AOV.
+- Speed over perfection: if what's in the bottle is a 9/10, launch it (the Shirley Temple can shipped with cut-off back-copy on the first 10 million cans and one person noticed).
+- Pick one playbook and stick to it; there are a million playbooks that work, but don't run 20 at once. What you start with isn't what you end with — the only way to start is to just start.
+- Why he does the personal brand: he spent ~10 years behind the camera for his wife Mari; when she stepped back for motherhood, he saw course-sellers who'd never built a business talking to young men and felt a responsibility to be a real example — and wants his kid to be able to watch it later.
+
+### From public writing (2026-10-16 incremental)
+- Six-month lock-in windows can make you unrecognizable (body, career, circle, mindset) if old habits die (YT 2026-10-10).
+- Start is never easier than today; waiting makes it harder (same).
+- Monomaniacal / 100–120 hour weeks for six months compresses what status-quo 40-hour weeks do in much longer (same).
+- Build the brand in public from day one alongside the product (same).
+- Bloom on track for $600M+ this year (stated first-party in same video; treat as his claim, not audited).
