@@ -217,3 +217,12 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Monomaniacal / 100–120 hour weeks for six months compresses what status-quo 40-hour weeks do in much longer (same).
 - Build the brand in public from day one alongside the product (same).
 - Bloom on track for $600M+ this year (stated first-party in same video; treat as his claim, not audited).
+
+### From public writing (2026-10-17 incremental)
+- Updated take: stress is not a necessary input for winning — it drives emotional over logical decisions; advice to 2019 Greg is stay level (Founderland stage, YT 2026-10-13). Sits alongside older "pressure created diamonds" framing.
+- Can't outspend Red Bull/Celsius/Monster on F1/World Cup/Super Bowl — win cultural moments instead (Valentine's Day, Disney tie-ins) and move at the speed of culture; harder as Bloom goes "speedboat to cruise ship" (same).
+- Bootstrap/anti-dilution: no raise meant building in-house influencer, branding, and R&D teams "for a tenth of the price" of agencies; partnering on drinks (Doss) when too big to make the mistake alone (same).
+- Start with powders before beverages: no retail distribution as a nobody; shipping cost difference goes into ads; Bloom energy stick packs ~10% of energy business (same).
+- Wanting more isn't greedy — it's gratitude for the opportunity; legacy is knowledge passed to his son, "not the commas" (same).
+- Don't compare your year two to someone's year eleven; the point isn't beating other founders. Q4 is when competitors coast — use the last 90 days to set up 2027 (same).
+- Networking: still a waste early, but powerful once you've contributed value — a 2026 unlock (same).

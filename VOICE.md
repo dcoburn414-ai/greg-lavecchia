@@ -181,3 +181,10 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 139. "I'm talking working like 100 120 hour weeks just from when you wake up to when you go to bed for 6 months straight." — same
 140. "starting with a personal brand and you build that thing in public just how we did. We were posting about building this brand from the day that we started this brand." — same
 141. "You cannot do that unless those old habits die." / "have the ability to be unrecognizable in six months." — same
+
+142. "Stress is not a direct or a a necessary input for productivity and winning." / "if anything, it causes more emotional decisions and less logical decisions." — Greg Lav YT "Inside the Minds of $1B Brand Founders" (Founderland stage) — https://www.youtube.com/watch?v=DbSG-f6lhXk (2026-10-13)
+143. "I'm never going to be able to write those checks. What they don't have is Valentine's Day." — same
+144. "It isn't the commas. It's what what can I pass down as as knowledge and wisdom so that he doesn't make the same painful mistakes that I made along the way." — same
+145. "It's not greedy. It's actually being grateful for the opportunity that the arena is giving us." — same
+146. "Go look at Bloom energy drink stick packets. We do it. I'm never giving advice that we don't do." — same
+147. "Compare your year two to my year two" / "the actual point of the game isn't to beat other founders." — same
