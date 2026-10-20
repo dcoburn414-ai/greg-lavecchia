@@ -188,3 +188,10 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 145. "It's not greedy. It's actually being grateful for the opportunity that the arena is giving us." — same
 146. "Go look at Bloom energy drink stick packets. We do it. I'm never giving advice that we don't do." — same
 147. "Compare your year two to my year two" / "the actual point of the game isn't to beat other founders." — same
+
+148. "The biggest unlock of growth for Bloom in 2027, if I'm being honest with y'all, it's two things. It's convenience stores and it's clubs, which means like Costco and Sam's Club." — Greg Lav YT "How to See Opportunities Before Everyone Else" (2026-10-19) — https://www.youtube.com/watch?v=mttlkjtoYxI
+149. "dude, I always say like these retailers, it's a symbiotic relationship. You need us, we need you." — same
+150. "Today, Tik Tok Shop is the marketing arbitrage." — same
+151. "Oh, dude. The arena doors are wide open. Like, the the opportunities have been democratized." / "And so, yes, it is easier than ever to make a million dollars without a doubt." — same (Iced Coffee Hour segment)
+152. "I think I've learned a lot more based off of what I don't want to be like than what I do want to be like." — same
+153. "I don't I don't write off any of the flights." / "It's not actually a business expense, right? It's it's a luxury." — same (on private-jet costs)

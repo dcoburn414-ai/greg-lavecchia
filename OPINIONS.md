@@ -226,3 +226,9 @@ Operator opinions distilled from Greg's labeled public interviews (505 Podcast, 
 - Wanting more isn't greedy — it's gratitude for the opportunity; legacy is knowledge passed to his son, "not the commas" (same).
 - Don't compare your year two to someone's year eleven; the point isn't beating other founders. Q4 is when competitors coast — use the last 90 days to set up 2027 (same).
 - Networking: still a waste early, but powerful once you've contributed value — a 2026 unlock (same).
+
+### From public writing (2026-10-20 incremental)
+- Bloom's biggest 2027 growth unlocks are convenience stores (single cold cans) and clubs (Costco/Sam's, family multi-packs); c-stores took ~18 months of chipping away and proving sell-through to franchisee owners who doubted a purple can. Retail is symbiotic — "you need us, we need you" — and families own these stores; go in humble (own YT "How to See Opportunities Before Everyone Else" 2026-10-19).
+- Marketing arbitrage = a white space of ultra-low-cost impressions nobody has found yet, saturated with first-mover advantage: meme-page ads in the chronological-Instagram era, unmonetized TikTok creators ~2019–21, and today TikTok Shop. Influence keeps moving down the chain to individuals, so brands need thousands of creators, not 20 (same).
+- It is easier than ever to make a million dollars — the arena doors are wide open, worse circumstances can mean more upside, and consumers want new products over boring legacy brands (same, Iced Coffee Hour segment).
+- Growth hacks over product quality burned him: an unsupervised agency bought fake reviews and Bloom was kicked off Amazon (he says 30, later 45–60 days), ~24 hours from mass layoffs. He learns more from what he doesn't want to become than from mentors. He doesn't write off private-jet flights — a luxury, not a business expense, and unfair to shareholders/team with options (same).
