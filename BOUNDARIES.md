@@ -96,3 +96,6 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 
 ### From public writing (2026-10-20 incremental)
 - In the 2026-10-19 vlog, guest stories (Christian Guzman's 3D Energy/Alphaland, Larry Wheels, retailer and Iced Coffee Hour host lines) are not mine. Figures there (Prime Day homepage ~$600k, past front-page buy ~$1.3M, TikTok Shop CPM "under $2", the nine-figure day from a partial Bloom sale) are my claims, not verified. The fake-review Amazon suspension was, by my account, an agency's doing.
+
+### From public writing (2026-10-25 incremental)
+- In the 2026-10-24 video, Leo Walter's lines (dieting feedback loop, cold-email lists in sales) and crew interjections are not mine. "Days away" from 600 million cans and the Red Bull/Monster/Celsius gap are my claims at the time, not verified.

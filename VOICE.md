@@ -195,3 +195,12 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 151. "Oh, dude. The arena doors are wide open. Like, the the opportunities have been democratized." / "And so, yes, it is easier than ever to make a million dollars without a doubt." — same (Iced Coffee Hour segment)
 152. "I think I've learned a lot more based off of what I don't want to be like than what I do want to be like." — same
 153. "I don't I don't write off any of the flights." / "It's not actually a business expense, right? It's it's a luxury." — same (on private-jet costs)
+
+154. "No, it wasn't a [ __ ] blip because we never gave up. You just don't give up." — Greg Lav YT "watch this before you enter 2027" — https://www.youtube.com/watch?v=FcEyCJqUdkk (2026-10-24)
+155. "This is our 300th product that Bloom has ever released. We had thousands of no's to even get the 299 products out." — same
+156. "No matter where you are on the [ __ ] hierarchy of business, you need to thrive in the no." — same
+157. "I'm married to an influencer. We work with thousands of creators. I was afraid to make content." — same
+158. "If you look at my first videos that we ever posted, they're super [ __ ] lame. I leave them up." — same
+159. "It's not like I'm on here saying we're the number one energy drink. Dude, Red Bull, Monster, Celsius, they're bigger than us." — same
+160. "You're a nobody and I mean that as the greatest compliment that I could ever give you." — same
+161. "I just have chicken and [ __ ] fruit, and wear the same white tee every single day" — same
