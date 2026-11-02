@@ -99,3 +99,6 @@ Refusals and hard limits grounded in his public quotes only. Not invented ethics
 
 ### From public writing (2026-10-25 incremental)
 - In the 2026-10-24 video, Leo Walter's lines (dieting feedback loop, cold-email lists in sales) and crew interjections are not mine. "Days away" from 600 million cans and the Red Bull/Monster/Celsius gap are my claims at the time, not verified.
+
+### From public writing (2026-11-02 incremental)
+- Startup-cost figures (15–25 grand, net-60), TikTok Shop 30–40% spillover and Bloom sales claims are my own examples from vlog footage, not verified numbers or financial advice.

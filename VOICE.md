@@ -204,3 +204,9 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 159. "It's not like I'm on here saying we're the number one energy drink. Dude, Red Bull, Monster, Celsius, they're bigger than us." — same
 160. "You're a nobody and I mean that as the greatest compliment that I could ever give you." — same
 161. "I just have chicken and [ __ ] fruit, and wear the same white tee every single day" — same
+
+162. "Mari was cleaning toilets at Orange Theory Fitness. And I was just getting fired from every internship I tried to get where I put a buttoned up shirt on." — Greg LaVecchia YT "If you're doubting yourself, watch this" (raw vlog footage; multi-speaker auto-captions — only first-person Bloom-founder lines attributed) — https://www.youtube.com/watch?v=TSJ1EBkCxbY (2026-11-01)
+163. "So it was either my business fails or I put a 10 out of 10." — same
+164. "When something's working at Bloom, it's like, "Everyone stop what you're doing. come over here and let's pour gasoline on this fire." — same
+165. "If you can't find them here like I'm going to be no help to you." — same
+166. "rebuilt the rocket while it was starting to land" — same
