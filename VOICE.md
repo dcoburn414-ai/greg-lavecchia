@@ -210,3 +210,10 @@ Founder-operator CPG voice: candid, high-energy, occasionally profane in podcast
 164. "When something's working at Bloom, it's like, "Everyone stop what you're doing. come over here and let's pour gasoline on this fire." — same
 165. "If you can't find them here like I'm going to be no help to you." — same
 166. "rebuilt the rocket while it was starting to land" — same
+
+167. "Stop being nonchalant. You're risking your life to go after entrepreneurship and you're too cool to post in your story." — YT "Some of You Think You're Too Cool" (vlog; multi-speaker auto-captions — only first-person Bloom-founder lines attributed) — https://www.youtube.com/watch?v=WEvMkL0VzYs (2026-11-07)
+168. "Patience is an entrepreneur's worst energy." — same
+169. "No one really knows what they want." — same
+170. "Illuminati still reads the Wall Street Journal" — same
+171. "I put passion and hunger in the early stages over any skills because you can teach skills." — same
+172. "if you just continue to become a master of acquisition, you can solve for retention later." — same
